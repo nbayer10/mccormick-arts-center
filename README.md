@@ -1,2 +1,1 @@
-# mccormick-arts-center
-# mccormick-arts-center
+# mccormickartscenter.com
