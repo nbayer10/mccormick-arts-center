@@ -1,1 +1,1 @@
-# [mccormickartscenter.com](mccormickartscenter.com)
+# mccormickartscenter.com
